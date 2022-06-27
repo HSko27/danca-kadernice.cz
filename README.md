@@ -1,0 +1,1 @@
+# danca-kadernice.cz
